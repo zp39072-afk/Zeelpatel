@@ -1,2 +1,0 @@
-# Zeelpatel
-oil resolution
